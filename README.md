@@ -1,1 +1,1 @@
-![facebook.com/help/147348452522644/](147348452522644.png)
+![facebook.com/help/147348452522644/](FormatTextInMessagesOnFacebookChat.png)
